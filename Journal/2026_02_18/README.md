@@ -1,1 +1,0 @@
-# write for 《Angel Beats!》
